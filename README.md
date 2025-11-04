@@ -1,0 +1,1 @@
+# magnus_traning1
